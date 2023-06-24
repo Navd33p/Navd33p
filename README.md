@@ -1,4 +1,4 @@
-![](![iron-man-the-avengers-yy-1920x1080](https://github.com/akankushjnvku/akankushjnvku/assets/115772616/a4fb8940-9f58-45f7-b8ee-ed0f9b54b760)
+![](![myphoto.jpg](https://github.com/akankushjnvku/akankushjnvku/assets/115772616/a4fb8940-9f58-45f7-b8ee-ed0f9b54b760)
 
 
 <!-- ![linke3 mackph](https://user-images.githubusercontent.com/71630336/167281758-e4f57b2b-4877-4fea-9706-48099f96b94c.png) -->
